@@ -20,7 +20,7 @@
 </p>
 
 
-Weathered Tales conta a história de como a humanidade mergulhou em uma crise crimatica sem precedentes, onde nada é previsível e tudo o que resta é sobreviver. Weathered Tales, traz 3 contos que ilustram a vida em tais condições.
+Weathered Tales conta a história de como a humanidade mergulhou em uma crise crimatica sem precedentes, onde nada é previsível e tudo o que resta é sobreviver. Weathered Tales traz 3 contos que ilustram a vida em tais condições.
 <br><br>
 
 <br><br>
