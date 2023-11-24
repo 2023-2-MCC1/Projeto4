@@ -15,14 +15,18 @@
 ## Descrição
 
 <p align="center">
-<img src="https://pix4free.org/assets/library/2021-01-20/originals/game.jpg" alt="Weathered Tales" border="0">
-  Game by <a href="http://www.nyphotographic.com/">Nick Youngson</a> <a rel="license" href="https://creativecommons.org/licenses/by-sa/3.0/">CC BY-SA 3.0</a> <a href="http://pix4free.org/">Pix4free</a>
+  <img src="https://user-images.githubusercontent.com/80916116/285442524-bbe6a783-7960-4bfa-b967-95d50ac47d9b.png" alt="weathered tales" border="0">
 </p>
 
 
-Weathered Tales conta a história de como a humanidade mergulhou em uma crise crimatica sem precedentes, onde nada é previsível e tudo o que resta é sobreviver. Weathered Tales traz 3 contos que ilustram a vida em tais condições.
-<br><br>
 
+Weathered Tales conta a história de como a humanidade mergulhou em uma crise crimatica sem precedentes, onde nada é previsível e tudo o que resta é sobreviver. Weathered Tales traz 3 contos que ilustram a vida em tais condições.
+
+Apresentação: 
+
+
+<br><br>
+https://www.canva.com/design/DAF01kHMWFk/ZsvWfTp8YenJYpa7jaYVXw/edit?utm_content=DAF01kHMWFk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 <br><br>
 May the force be with you!
 <br><br>
