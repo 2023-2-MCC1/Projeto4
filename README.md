@@ -21,8 +21,12 @@
 
 
 Weathered Tales conta a história de como a humanidade mergulhou em uma crise crimatica sem precedentes, onde nada é previsível e tudo o que resta é sobreviver. Weathered Tales traz 3 contos que ilustram a vida em tais condições.
-<br><br>
 
+Apresentação: 
+
+
+<br><br>
+https://www.canva.com/design/DAF01kHMWFk/ZsvWfTp8YenJYpa7jaYVXw/edit?utm_content=DAF01kHMWFk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 <br><br>
 May the force be with you!
 <br><br>
