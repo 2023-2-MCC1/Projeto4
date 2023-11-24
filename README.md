@@ -15,7 +15,7 @@
 ## Descrição
 
 <p align="center">
-  <img src="[https://user-images.githubusercontent.com/80916116/285442524-bbe6a783-7960-4bfa-b967-95d50ac47d9b.png](https://user-images.githubusercontent.com/80916116/285442524-bbe6a783-7960-4bfa-b967-95d50ac47d9b.PNG)" alt="weathered tales" border="0">
+  <img src="https://user-images.githubusercontent.com/80916116/285442524-bbe6a783-7960-4bfa-b967-95d50ac47d9b.png(https://user-images.githubusercontent.com/80916116/285442524-bbe6a783-7960-4bfa-b967-95d50ac47d9b.PNG)" alt="weathered tales" border="0">
 </p>
 
 
